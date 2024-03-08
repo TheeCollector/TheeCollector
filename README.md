@@ -1,0 +1,7 @@
+- 👋 Helo, I’m @TheeCollector
+- 👀 I’m interested in music, gaming, making vfx, a bit of coding
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on nothing as of now
+- 📫 How to reach me: Discord: thecollector3 
+- 😄 Pronouns: He/Him They/Them
+- ⚡ Fun fact: I play osu!mania lol
